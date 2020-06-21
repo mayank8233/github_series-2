@@ -4,5 +4,5 @@
 
 ### I worked on many projects in my graduation till now including Bug Management system also some of them with SQL Database and JDBC.!
 
-#### I generally try to learn new things and educational courses in various platforms whichever suites me.!!###Worked with different ### startups and organisation as an intern !!
+#### I generally try to learn new things and educational courses in various platforms whichever suites me.!!Worked with different startups and organisation as an intern !!
 ### Hope to achieve something big and create new inventions in my field to make my country proud.! **
